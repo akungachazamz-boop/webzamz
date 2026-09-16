@@ -1,2 +1,2 @@
 # KONTOL
-web
+web zamz gak holeh salin
